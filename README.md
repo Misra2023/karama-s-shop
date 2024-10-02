@@ -1,0 +1,1 @@
+# karama-s-shop
